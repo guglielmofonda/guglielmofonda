@@ -1,7 +1,11 @@
 # Guglielmo Fonda
 
-I like shipping things and automating everything I can.
+Automating myself 🔁
 
-Currently obsessed with health tech and personal health data — tracking, understanding, and building tools around it.
+"Obsessing over the earliest signals of excelence and engineering ways to find such cues" @solo-founders
 
-Helpign poeple who want to build things worth building and have the urgency to not wait around for a cofounder @solo-founders.
+Other passions include
+> anything health
+> carrots
+> my beloved crew of AI agents named after greek gods
+> tennis
