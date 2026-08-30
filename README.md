@@ -2,14 +2,14 @@
 
 Automating myself 🔁
 
-Obsessing over the earliest signals of excelence and engineering ways to find such cues  @solo-founders
+Obsessing over the earliest signals of excellence, and engineering ways to find those talented founders (at @solo-founders)
 
-Other passions include:
+Otherwise you might find me:
 
--> anything health
+-> Doing sports (tennis, biking gym etc)
 
--> carrots
+-> Biohacking and learning about health optimizations
 
--> my beloved crew of AI agents named after greek gods
+-> Chatting with my beloved crew of AI agents named after greek gods
 
--> tennis
+-> Meeting new people! 
